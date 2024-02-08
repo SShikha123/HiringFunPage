@@ -5,6 +5,7 @@
 
 
 
-![Uploading hiredimg.png…]()
+![image](https://github.com/SShikha123/HiringFunPage/assets/88380803/847f52cf-35f4-4da4-aeb0-632fabbf1b95)
+
 
 
